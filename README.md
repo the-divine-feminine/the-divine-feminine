@@ -13,4 +13,4 @@
 ## Girl, I'm so in love with you, yeah
 ## Girl, I'm so in love with you ᡣ𐭩
 
-![image alt](https://github.com/the-divine-feminine/the-divine-feminine/blob/main/67c388723c3e29890ed32eb61dbe414f.jpg?raw=true)
+![image alt](https://github.com/the-divine-feminine/the-divine-feminine/blob/main/d139d11b076cbc4492e104387520dd4f.jpg?raw=true)
