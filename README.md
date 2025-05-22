@@ -1,22 +1,16 @@
-The Sun don't shine when I'm alone
+## The Sun don't shine when I'm alone
+## I lose my mind and I lose control
 
-I lose my mind and I lose control
+## I see your eyes look through my soul
+## Don't be surprised, this is all I know
 
-I see your eyes look through my soul
+## I felt the highs and they felt like you
+## See, a love like mine is too good to be true
 
-Don't be surprised, this is all I know
+## And you too divine to just be mine
+## You remind me of the color blue
 
-
-I felt the highs and they felt like you
-
-See, a love like mine is too good to be true
-
-And you too divine to just be mine
-
-You remind me of the color blue
-
-Girl, I'm so in love with you, yeah
-
-Girl, I'm so in love with you
+## Girl, I'm so in love with you, yeah
+## Girl, I'm so in love with you ᡣ𐭩
 
 ![image alt](https://github.com/the-divine-feminine/the-divine-feminine/blob/main/67c388723c3e29890ed32eb61dbe414f.jpg?raw=true)
