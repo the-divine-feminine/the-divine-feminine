@@ -10,7 +10,9 @@
 ⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[atabook](https://alas2ca.atabook.org/)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[atabook](https://alas2ca.atabook.org/)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=the-divine-feminine)
+
+⠀⠀⠀⠀⠀
 ![image alt](https://github.com/the-divine-feminine/the-divine-feminine/blob/45f092b5adf653dbcb2da03570da14b04de2885c/668%20Sem%20T%C3%ADtulo_20251128202701.png)
 ⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀rentry+straw = wip
